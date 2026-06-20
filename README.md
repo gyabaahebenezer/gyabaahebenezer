@@ -2,7 +2,7 @@
 - 👀 I’m interested in blogging
 - 🌱 I’m currently learning how to use github
 - 💞️ I’m looking to collaborate on git
-- 📫 How to reach me search for international_blogger01 on all sovaika media plartforms
+- 📫 How to reach me search for international_blogger01 on all social media plartforms
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
